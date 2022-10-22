@@ -5,3 +5,8 @@
 ## Uygulama videosu
 
 
+
+
+https://user-images.githubusercontent.com/61823965/197362063-afaf4811-ed19-4743-9181-041e0fa2a7fe.mp4
+
+
